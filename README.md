@@ -1,2 +1,2 @@
 # Test
-I went from Phoenix, Arizona all the way to Tacoma.
+On a dark desert highway, cool wind in my hair.
